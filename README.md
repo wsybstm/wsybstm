@@ -1,16 +1,20 @@
-## Hi there 👋
+外国四个黑人RAPPER组合越南女RAPPERDISS大战
 
-<!--
-**wsybstm/wsybstm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+、焰？”场下悠姬皱眉道。
+
+    不过爱丽丝却放松的说道：“的确没有调整过火焰，但是你仔细看，虽然阿星一直使用的是最大火，但是……很多时候根本没有将炒勺放在火灶上，而是一直虚擎着！他是在利用炒勺与火焰的距离，来调整火候！”
+
+    “什么？真、真的能做到吗？”
+
+    “一般人肯定是不可能的，体力上也不允许，更不说什么控制火候了，不过阿星的话……”
+    “时间到！考核结束，接下来请评委入席品尝！”川岛丽的声音响了起来。
+
+    六个小时的食戟已经结束，双方刚刚将热菜全都摆上桌之后，已经到了评委们入席品尝的时间。
+
+    五名评委们走了过来，看着两只长宴客桌上，一模一样的四凉、四热、三面点、一汤的组合，还有中华料理研究社这边，多出来的“四灵高汤白菜”、“久我特质麻婆豆腐”、“宫保q鸡丁”、“罗宋蹄花汤”、“麻辣冷吃兔”，三热一冷一汤五道菜肴。
+
+    “哼，即便前面的冷盘一样，后面包括‘砂锅煨鹿筋’、还有两道炒制料理的三道热菜，也太过粗糙了！”史密斯说着先坐到了“中枢美食机关”的宴客桌上。
